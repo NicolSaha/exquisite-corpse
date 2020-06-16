@@ -1,6 +1,6 @@
 # Breezy Summerday
 
-_Chilly winds and cold icecream_
+_Chilly winds and cold icecreams_
 
 **Sailing boats and soaring kites**
 
@@ -13,12 +13,12 @@ _Chilly winds and cold icecream_
 **_a man writing poems on the beach_**
 
 4. It is a beauteous evening, **calm and free**
-5. The holy time is quiet as a Nun
+5. The holy time is as quiet as a Nun
 6. Breathless with adoration; the broad sun
 7. Is sinking down in its **tranquillity**
 
-_The night has come the stars are shining._
+_The night has come, stars are shining._
 
-**Are reflected in the ocean of calmness**
+**Being reflected in the ocean of calmness**
 
-_**Peace and quiet, even the mosquito doesn't fart**_
+_**Peacefulness and quieteness, even the mosquitos don't fart**_
