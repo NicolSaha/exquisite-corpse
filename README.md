@@ -17,5 +17,7 @@ _Chilly winds and cold icecream_
 6. Breathless with adoration; the broad sun
 7. Is sinking down in its **tranquillity**
 
-
+The night has come the stars are shining.
+Are reflected in the ocean of calmness
+Peace and quiet, even the mosquito doesn't fart
 
