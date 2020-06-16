@@ -10,6 +10,20 @@ _Chilly winds and cold icecream_
 2. Trampolines and *paintbrushes*
 3. Warm tea and citrus spiked fizzy water
 
+**_a man writing poems on the beach_**
+
+4. It is a beauteous evening, **calm and free**
+5. The holy time is quiet as a Nun
+6. Breathless with adoration; the broad sun
+7. Is sinking down in its **tranquillity**
+
+**_a man writing poems on the beach_**
+
+4. It is a beauteous evening, **calm and free**
+5. The holy time is quiet as a Nun
+6. Breathless with adoration; the broad sun
+7. Is sinking down in its **tranquillity**
+
 
 
 
